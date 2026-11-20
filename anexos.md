@@ -1,0 +1,1 @@
+<a href="https://users.ime.usp.br/~dpdias/2024/Stewart_1_ptbr.pdf">Cálculo - Edição 7, volume 1</a>
